@@ -1,2 +1,2 @@
-![](https://64.media.tumblr.com/f64a33b63e2dcf5f639653316f4d662d/16b5334694768f74-78/s1280x1920/a313a2ee1ec417860c4cf16d414bb17388603cab.pnj)
-<p></p>" 𝐓𝐇𝐀𝐓'𝐒 𝐊𝐀𝐂𝐂𝐇𝐀𝐍 𝐁𝐀𝐊𝐔𝐆𝐎 𝐓𝐎 𝐘𝐎𝐔, 𝐘𝐀 𝐆𝐑𝐀𝐃𝐄-𝐀 𝐌𝐎𝐑𝐎𝐍! "
+![](https://files.catbox.moe/sewcuz.png)
+<p></p>" FUCK HELL , FUCK HEAVEN , AND FUCK ALL OF YOU . "
